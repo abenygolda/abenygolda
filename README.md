@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abenygolda
-- 👀 I’m interested in every technical stuff
+- 👀 I’m interested in almost all technical stuff
 - 🌱 I’m currently studying Computer Science and Engineering
 - Nice to meet ya. 
 
